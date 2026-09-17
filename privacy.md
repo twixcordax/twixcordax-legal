@@ -1,4 +1,4 @@
-# Politique de confidentialité de Twixcordax
+# Politique de confidentialité Twixcordax
 
 **Dernière mise à jour : 17 septembre 2026**
 
